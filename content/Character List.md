@@ -1,3 +1,3 @@
-[[Ameria Keyvaris]]
-[[Ryker Auberon]]
-[[Edrin Shahra]]
+- [[Ameria Keyvaris]]
+- [[Ryker Auberon]]
+- [[Edrin Shahra]]
