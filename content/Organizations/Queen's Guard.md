@@ -1,0 +1,5 @@
+Created by the [[Monarchy]] by [[Queen Mirsia III]] to patrol towns and villages. They are to enforce curfews and subdue any stray beast that eludes the [[Order of the Aladur]] and makes its way into the towns in the present day. However, their true mission is to keep look out for those who wield magic and bring them into custody under the guise that they are a danger to society due to magic being outlawed. 
+
+The Queen’s Guard would go on to switch u p on their orders to protect from the beasts that wander in to working *with* the beasts under the order of the Queen during the [[Siege of Bosciynia]]. They continued to enforce the rule of the Queen with a heavy hand, and was known to use lethal force on those who they deemed necessary to do so. 
+
+The Guard was disbanded after the fall of the [[Primordial Beast]] and the subsequent death of Queen Mirsia, and many members were either sentenced to jail for their involvement, or sent to their death of the crimes were far more atrocious. This was under the order of newly crowned King [[Varen Nyro | Varen]] the First.

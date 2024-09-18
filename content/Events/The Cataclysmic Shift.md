@@ -1,0 +1,13 @@
+The rifts between the human world and [[Ory’nara]] suddenly opened up due to experimentation from the Ory'narian royal family. Beasts and Magic pour from these rifts into the human world causing destruction and disarray. 
+
+~~The country of Bosciynia was not known as such eons ago. Magic was not around and life was "normal". The same was for every country in the world. Though it was never peaceful as humanity still had wars from time to time.~~ 
+
+~~There were traces of magic that lingered in the world leading up the the big shift. It was what made folklore and stories have some semblance of truth. Though, over the years the magic continued to build up in the world until it all came spilling out. But before that, people would be deemed magic-touched. Simple things such as pulling flowers from the ground and making them bloom, or keeping a fire contained on its torch. Things that were helpful to everyday life.~~ 
+
+~~As the years went on, the magic grew more powerful. Some people could not handle the surge of power, while others flourished. This caused tensions to rise over the fear of building uneven alliances or impending colonization. It was during this time that the shadows of beast began to be seen, but still not strong enough to fully shift into the new plane -- though mysterious injuries began to arise.~~ 
+
+~~The Shift happened in a blink. One moment there was nothing, and then in another there was almost a wave like crash against the shore -- being the human plane of existence. The planes of the universe collided, much like tectonic plates, and that shift brought magic and [[Beasts]] into the small country as well as [[Land Formations#Mount Bouchersor|Mount Bouchersor]] -- the source of the magic. Magic bled from the volcano through the ground, each branching off into different sections which led to the creation of the magic towers which syphoned the magic following unnamed magic war here.~~
+
+~~These sections were the source of all magic for the entire world, though smaller spouts of magic bloomed in other countries. But most of the magic stemmed from Bosciynia. The sections would also become the future locations of Magic Towers.~~
+
+~~Due to the shock of the planar shift, man and beast kept themselves at bay for the time being. The beasts spent time finding the locations where they would thrive in, and eventually reproduce with the "normal" animals there. However, tensions would eventually rise as the people began to expand in the country.~~ 

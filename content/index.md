@@ -1,6 +1,4 @@
 ---
-title: Welcome to Quartz
+title: The Veiled Worlds
 ---
-
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+[[Character List]]

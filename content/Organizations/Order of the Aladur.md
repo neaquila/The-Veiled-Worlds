@@ -1,0 +1,1 @@
+Created by the [[Monarchy]] (king Eònan) to keep the citizens safe from frenzied [[Beasts]].
