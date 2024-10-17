@@ -1,2 +1,0 @@
-[[Veiled Shadows]] 
-[[Pietra]]

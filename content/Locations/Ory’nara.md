@@ -1,1 +1,1 @@
-The land inhabited by [[Rotharian]] folks (faun), [[Beasts |Luobo]] (canine), [[Drysen]] (seafolk), and [[Erythan]] (avian) creatures. 
+The land inhabited by [[Rotharian]] folks (faun), [[Beasts |Luobo]] (canine), [[Arquendes]] (seafolk), and [[Erythan]] (avian) creatures. 

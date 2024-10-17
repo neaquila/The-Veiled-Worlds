@@ -1,4 +1,6 @@
-"Meri/Rini" (she/her)
+![[Ameria(1).png]]
+
+"Meri/Rini" (she/her) 
 Age: 28
 Human
 Female
@@ -16,14 +18,3 @@ Ameria is fiercely protective of her friends and family, but also does have fun.
 
 She graduated at the top of her class in the ranger academy, and is quite skilled in fire magic. Nothing on par of a master practitioner, but some things she can do include pulling a flame from a spark and manipulating its size and ferocity. 
 
-## Personal Goals 
-Lead her own squad of rangers, and eventually become the commander of the [[Order of the Aladur]].
-
-## Set Backs
-Inability to really open up causes her to lose people close to her, but more importantly she has put her job before friends/relationships and nearly loses them all that way. 
-
-## Outcome
-Learn she can balance work and life, and also deeply care about someone. Romance isn't scary. There is more to life than just the Order of the Aladur. 
-
-## Story
-[[Edrin Shahra]] [[Ryker Auberon]] 

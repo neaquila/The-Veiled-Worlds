@@ -1,1 +1,0 @@
-The inhabitants of [[Ory’nara]] — the land just on the other side of the rifts. 

@@ -1,3 +1,0 @@
-The monarchy was established 2000 years before present day - 1823 K.C. - after the events of [[The Beast Wars]]. The country of [[Stiux]], located on the neighboring continent of [[Enix]], came over and established the current monarchy and officially established the country of [[Bosciynia]].
-
-Current day, the ruler of the country of Bosciynia is [[Queen Mirsia III]]. She stepped into power after the death of her father, [[King Luten IV]]. Queen Mirsia has one child, a son, named [[Varen Nyro|Varen]] whom she hid from the world after his birth showed that he inherited some of the physical appearances of his [[Rotharian]] ancestry. To the world, her one and only pregnancy was a still born, but in reality Varen lived only within the walls of the palace. 
